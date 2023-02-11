@@ -1,2 +1,2 @@
-# aristutle.github.io
+# shmcao.github.io
 Shimin Cao personal page
